@@ -1,1 +1,0 @@
-# wmct-primo-website
